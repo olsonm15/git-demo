@@ -41,5 +41,4 @@ Cliche lumbersexual in activated charcoal magna same pickled polaroid.
 Plaid 8-bit yes plz, truffaut mixtape meggings nostrud portland freegan 
 sed in adipisicing. Squid viral craft beer laborum, DSA minim cardigan 
 reprehenderit af enamel pin wolf tousled bodega boys helvetica health 
-goth. Truffaut pariatur celiac fingerstache. Activated charcoal twee beard 
-non.
+goth.
